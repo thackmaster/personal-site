@@ -1,0 +1,26 @@
+---
+layout: page
+sidebar: right
+subheadline: You are never alone
+title: You're Not Alone
+#teaser: "This is an example of page/post with a sidebar on the right."
+breadcrumb: true
+categories: thoughts
+tags:
+    - inspiration
+    - trials
+---
+
+A lot of people go through life doing what they want, when they want, not having a care about other people's lives. After all, why should they care? It's not their life; they shouldn't be sticking their noses into the middle of somebody else's business. But we should care about other people, not in the sense that we need to know everything about one person. But rather in the sense that we need to care about them like family and be aware of their needs. After all, we are all one big family down here on Earth.
+
+God has taught us multiple times, both through scriptures and prophets, that we all are brothers and sisters and that we all have one father, our Heavenly Father and that Jesus Christ is our brother. We, as members of The Church of Jesus Christ of Latter-Day Saints, also have something that is always with us. It is called the Holy Ghost and it can warn us if we're about to make a bad choice so long as we are tuned into the Spirit. The Holy Ghost can also let us know if we're doing something right by making us feel warm and fuzzy inside.
+
+So why do we need to care about other people's lives? Well, let me tell you something that has happened to me.
+
+I had a close friend who was going through a rough part in his life. Every once in a while, he'd drop a weird comment like "What would it be like if I wasn't here" or "Ugh. No one likes me. I might as well not exist". These comments disturbed me but I thought nothing of them at the time. (Please keep in mind that at this time we were rehearsing for an upcoming school play. I was backstage tech and he was one of the actors.) One day, he said a really disturbing comment (I can't remember what it was) but it hit me so hard that I had to walk away so I could cry in peace. I cried for like half the rehearsal. All the while, I was on mormon.org talking to some missionaries and I told them what he'd said. They asked me to pray about it and ponder it some. So I did and after a while, I calmed down. Most of the other actors backstage with me helped comfort me. An older friend of mine who had just graduated and was on a mission suddenly contacted me personally through email. They said that they had seen I was online talking to some missionaries and wondered if I needed any help. I politely declined the request and simply said that I had gotten an answer to what I was looking for. Sadly, I no longer have the email but I do know that it was very inspiring. I went about the rest of my day as usual.
+
+I don't know how long after that did this next event happen. I arrived at church with my family to find a friend of mine who was not in my ward in the parking lot, walking towards us in total tears. My mother asked what was wrong but my friend couldn't answer. She simply held her phone out to us and managed to say "It's \*\*\*\*\*\*\*. Something's wrong." (I've blotted out the name for privacy). I hurried the rest of my family into the chapel and went back outside to where they were standing. My mother said to hop in the car, that something was wrong with my other friend and we needed to leave. So we did and peeled out of the parking lot, speeding towards his house. I am clueless and don't know what's happening. My mother can't talk on the phone because she's driving and \*\*\*\*\*\*\*\*\* is in tears still so I'm left to talk on the phone. As I'm talking and not receiving a response, I'm told that all he needs to hear is my voice right now. At this point, I thought he was in a car accident and on the brink of death. So I just begin talking. I don't remember anything that I said but I do know that God put the words in my mouth. We arrive at his house and at this point I know it couldn't have been a car accident. We jog over through some trees and down a small slope to find him and members of his family sitting around him next to a drop-off. It suddenly hits me: He was going to commit suicide. We managed to get him back inside his own house and everything was sorted out from there. I'm not going to go into detail on the events afterward or the reason why he was going to kill himself. That is deeply personal information that I, myself, don't feel comfortable disclosing. I will tell you that he is perfectly fine and is one of my very best friends to this day.
+
+Now, in this situation, I had no idea what was going on. But I knew that I needed to just keep saying something on the phone. And so I did. I may not have been the entire reason he ended up not jumping but I do know that I helped in a way, the way God needed me to help out. And I do know that so long as you follow the prompting of the Holy Ghost, he will lead and guide you to do whatever it is God needs you to do.
+
+Sorry for such a scary first post. I just felt like this is what I needed to share today and so I did. I will post again in the future whenever I feel like I need to. Thanks so much for reading and have a wonderful day!!!

@@ -1,7 +1,7 @@
 - menu_name: "Navigation"
 
 - name: "Photography"
-  url: "#"
+  url: "/photography/"
 
 - name: "Projects"
   url: "#"
